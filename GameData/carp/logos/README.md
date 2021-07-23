@@ -1,0 +1,1 @@
+logos provided by forum user DirtyFace83 author of [Kerbalized Flags](https://forum.kerbalspaceprogram.com/index.php?/topic/102185-111x-19-apr-2021-kerbalized-flags-agencies-and-decal-textures-added-more-stuff/)
